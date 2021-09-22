@@ -25,8 +25,8 @@
 <a href="https://t.me/LEGACY_LEAVERS_NETWORK"><img src="https://img.shields.io/badge/Join-SUPPORT%20CHANNEL-red.svg?logo=Telegram"></a>
 
 -------------------------------------------------
-## 𝙾𝚆𝙽𝙴𝚁 -[CHETANYA🇮🇳](https://t.me/pro_chetanya)
-## 𝙲𝙾 𝙾𝚆𝙽𝙴𝚁 -[𝙳𝙰𝙽𝙸𝚂𝙷🇮🇳](https://t.me/IDANISHBAABA)
+## 𝙾𝚆𝙽𝙴𝚁 -[RISHABH🇮🇳](https://t.me/MAFIARISHABH)
+## HELPER -[MAFIA🇮🇳](https://t.me/Mafia_chat_g)
 -------------------------------------------------
 
 ## 🚀 Deploy on Heroku 
